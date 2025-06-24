@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://hl379.pages.dev/">黑料大事记</a>
 
-点击访问：<a href="https://cg38-25.pages.dev/">911爆料</a>
+点击访问：<a href="https://cg765.pages.dev/">吃瓜爆料网</a>
 
 点击访问：<a href="https://cg30-5.pages.dev/">今日吃瓜不打烊</a>
 
